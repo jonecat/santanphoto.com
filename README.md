@@ -1,2 +1,0 @@
-# santanphoto.com
-santanphoto.com
